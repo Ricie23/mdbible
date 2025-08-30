@@ -6,6 +6,8 @@ In `by_book/` you will find one Markdown file for each book. The book titles are
 
 In `by_chapter/` you will find directories for each book with one Markdown file for each chapter.
 
+In `by_verse/` you will find directories for each book with directories for each chapter with one Markdown file for each verse.
+
 Want something formatted differently? Tweak the scripts or ask me.
 Want one of the other bible versions from Javascriptures? I might add them later... But if you don't want to wait: Again, edit the script and open a pull request if you want. Or ask nicely. 😉
 
