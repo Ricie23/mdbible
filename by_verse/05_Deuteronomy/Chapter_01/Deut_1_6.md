@@ -1,0 +1,1 @@
+The Lord our God said to us in Horeb, You have stayed long enough at this mountain.
