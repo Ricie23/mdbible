@@ -1,1 +1,0 @@
-discretion will watch over you, understanding will guard you,

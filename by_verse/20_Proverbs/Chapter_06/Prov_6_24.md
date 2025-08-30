@@ -1,1 +1,0 @@
-to preserve you from the evil woman, from the smooth tongue of the adulteress.

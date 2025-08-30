@@ -1,1 +1,0 @@
-Leave the presence of a fool, for there you do not meet words of knowledge.

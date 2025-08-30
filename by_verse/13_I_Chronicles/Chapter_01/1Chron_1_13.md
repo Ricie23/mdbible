@@ -1,1 +1,0 @@
-Canaan fathered Sidon his firstborn and Heth,

@@ -1,1 +1,0 @@
-The sons of Helem his brother : Zophah, Imna, Shelesh, and Amal.

@@ -1,1 +1,0 @@
-And King Solomon sent and brought Hiram from Tyre.

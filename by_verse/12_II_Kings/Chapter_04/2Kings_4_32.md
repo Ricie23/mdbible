@@ -1,1 +1,0 @@
-When Elisha came into the house, he saw the child lying dead on his bed.

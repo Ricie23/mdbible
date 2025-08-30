@@ -1,1 +1,0 @@
-To me they cry, My God, we— Israel — know you.

@@ -1,1 +1,0 @@
-You have been traveling around this mountain country long enough. Turn northward

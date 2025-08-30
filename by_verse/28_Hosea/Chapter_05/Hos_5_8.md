@@ -1,1 +1,0 @@
-Blow the horn in Gibeah, the trumpet in Ramah. Sound the alarm at Beth-aven; we follow you, O Benjamin!

@@ -1,1 +1,0 @@
-Again, I saw vanity under the sun :

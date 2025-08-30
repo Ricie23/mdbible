@@ -1,1 +1,0 @@
-Who can say, I have made my heart pure; I am clean from my sin?

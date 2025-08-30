@@ -1,1 +1,0 @@
-He fathered sons by Hodesh his wife : Jobab, Zibia, Mesha, Malcam,

@@ -1,1 +1,0 @@
-To Machir I gave Gilead,

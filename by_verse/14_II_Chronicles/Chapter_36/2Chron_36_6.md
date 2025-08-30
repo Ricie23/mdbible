@@ -1,1 +1,0 @@
-Against him came up Nebuchadnezzar king of Babylon and bound him in chains to take him to Babylon.

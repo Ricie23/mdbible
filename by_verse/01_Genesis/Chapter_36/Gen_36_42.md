@@ -1,1 +1,0 @@
-Kenaz, Teman, Mibzar,

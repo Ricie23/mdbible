@@ -1,1 +1,0 @@
-The sons of Hezron that were born to him: Jerahmeel, Ram, and Chelubai.

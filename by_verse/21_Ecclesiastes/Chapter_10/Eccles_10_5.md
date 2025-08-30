@@ -1,1 +1,0 @@
-There is an evil that I have seen under the sun, as it were an error proceeding from the ruler :

@@ -1,1 +1,0 @@
-And Hezekiah questioned the priests and the Levites about the heaps.

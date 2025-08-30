@@ -1,1 +1,0 @@
-Keep hold of instruction; do not let go; guard her, for she is your life.

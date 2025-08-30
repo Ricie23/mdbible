@@ -1,1 +1,0 @@
-Give strong drink to the one who is perishing, and wine to those in bitter distress;

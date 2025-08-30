@@ -1,1 +1,0 @@
-Baana the son of Hushai, in Asher and Bealoth;

@@ -1,1 +1,0 @@
-What gain has the worker from his toil?

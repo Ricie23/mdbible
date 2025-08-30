@@ -1,1 +1,0 @@
-If you will seek God and plead with the Almighty for mercy,

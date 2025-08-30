@@ -1,1 +1,0 @@
-Riches and honor are with me, enduring wealth and righteousness.

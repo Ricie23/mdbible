@@ -1,1 +1,0 @@
-Give your eyes no sleep and your eyelids no slumber;

@@ -1,1 +1,0 @@
-with perverted heart devises evil, continually sowing discord;

@@ -1,1 +1,0 @@
-Iphdeiah, and Penuel were the sons of Shashak.

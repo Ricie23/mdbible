@@ -1,1 +1,0 @@
-My beloved is radiant and ruddy, distinguished among ten thousand.

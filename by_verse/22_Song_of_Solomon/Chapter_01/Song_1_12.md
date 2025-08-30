@@ -1,1 +1,0 @@
-While the king was on his couch, my nard gave forth its fragrance.

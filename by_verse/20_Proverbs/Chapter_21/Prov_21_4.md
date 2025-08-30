@@ -1,1 +1,0 @@
-Haughty eyes and a proud heart, the lamp of the wicked, are sin.

@@ -1,1 +1,0 @@
-The sons of Elkanah : Amasai and Ahimoth,

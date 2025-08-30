@@ -1,1 +1,0 @@
-Before him went pestilence, and plague followed at his heels.

@@ -1,1 +1,0 @@
-My beloved put his hand to the latch, and my heart was thrilled within me.

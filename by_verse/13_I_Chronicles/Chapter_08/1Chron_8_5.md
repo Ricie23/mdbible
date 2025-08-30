@@ -1,1 +1,0 @@
-Gera, Shephuphan, and Huram.

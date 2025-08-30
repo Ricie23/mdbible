@@ -1,1 +1,0 @@
-His head is the finest gold; his locks are wavy, black as a raven.

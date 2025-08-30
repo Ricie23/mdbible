@@ -1,1 +1,0 @@
-to receive instruction in wise dealing, in righteousness, justice, and equity;

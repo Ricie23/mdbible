@@ -1,1 +1,0 @@
-The sons of Micah : Pithon, Melech, Tarea, and Ahaz.

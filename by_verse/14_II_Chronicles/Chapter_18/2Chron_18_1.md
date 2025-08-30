@@ -1,1 +1,0 @@
-Now Jehoshaphat had great riches and honor, and he made a marriage alliance with Ahab.

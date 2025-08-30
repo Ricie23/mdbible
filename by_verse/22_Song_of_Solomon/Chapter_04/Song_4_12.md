@@ -1,1 +1,0 @@
-A garden locked is my sister, my bride, a spring locked, a fountain sealed.

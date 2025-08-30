@@ -1,1 +1,0 @@
-When David’s time to die drew near, he commanded Solomon his son, saying,

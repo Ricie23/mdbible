@@ -1,1 +1,0 @@
-After him arose Jair the Gileadite, who judged Israel twenty-two years.

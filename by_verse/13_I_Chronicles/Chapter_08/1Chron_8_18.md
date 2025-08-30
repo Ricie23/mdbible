@@ -1,1 +1,0 @@
-Ishmerai, Izliah, and Jobab were the sons of Elpaal.

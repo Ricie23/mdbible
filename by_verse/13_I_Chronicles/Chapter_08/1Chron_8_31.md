@@ -1,1 +1,0 @@
-Gedor, Ahio, Zecher,

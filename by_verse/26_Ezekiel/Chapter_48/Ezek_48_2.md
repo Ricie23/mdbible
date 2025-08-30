@@ -1,1 +1,0 @@
-Adjoining the territory of Dan, from the east side to the west, Asher, one portion.

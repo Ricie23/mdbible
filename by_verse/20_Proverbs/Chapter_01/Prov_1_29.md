@@ -1,1 +1,0 @@
-Because they hated knowledge and did not choose the fear of the Lord,

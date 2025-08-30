@@ -1,1 +1,0 @@
-son of Amariah, son of Azariah, son of Meraioth,

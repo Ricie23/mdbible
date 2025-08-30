@@ -1,1 +1,0 @@
-the sons of Hagab, the sons of Shamlai, the sons of Hanan,

@@ -1,1 +1,0 @@
-if you seek it like silver and search for it as for hidden treasures,

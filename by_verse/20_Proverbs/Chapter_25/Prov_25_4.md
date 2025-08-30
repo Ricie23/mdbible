@@ -1,1 +1,0 @@
-Take away the dross from the silver, and the smith has material for a vessel;

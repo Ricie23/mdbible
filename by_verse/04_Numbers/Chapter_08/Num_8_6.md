@@ -1,1 +1,0 @@
-Take the Levites from among the people of Israel and cleanse them.

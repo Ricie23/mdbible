@@ -1,1 +1,0 @@
-His firstborn son : Abdon, then Zur, Kish, Baal, Nadab,

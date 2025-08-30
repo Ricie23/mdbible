@@ -1,1 +1,0 @@
-And Gaal went out at the head of the leaders of Shechem and fought with Abimelech.

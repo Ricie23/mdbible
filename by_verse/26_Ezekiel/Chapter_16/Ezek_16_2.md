@@ -1,1 +1,0 @@
-Son of man, make known to Jerusalem her abominations,

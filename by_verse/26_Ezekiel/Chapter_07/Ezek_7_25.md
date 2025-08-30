@@ -1,1 +1,0 @@
-When anguish comes, they will seek peace, but there shall be none.

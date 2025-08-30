@@ -1,1 +1,0 @@
-Ben-deker, in Makaz, Shaalbim, Beth-shemesh, and Elonbeth-hanan;

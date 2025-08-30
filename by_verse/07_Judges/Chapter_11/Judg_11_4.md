@@ -1,1 +1,0 @@
-After a time the Ammonites made war against Israel.

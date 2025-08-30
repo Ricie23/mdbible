@@ -1,1 +1,0 @@
-And he overlaid the cherubim with gold.

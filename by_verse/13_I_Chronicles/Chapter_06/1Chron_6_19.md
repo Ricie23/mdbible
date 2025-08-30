@@ -1,1 +1,0 @@
-The sons of Merari : Mahli and Mushi. These are the clans of the Levites according to their fathers.

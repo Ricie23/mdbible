@@ -1,1 +1,0 @@
-Heber fathered Japhlet, Shomer, Hotham, and their sister Shua.

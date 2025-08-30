@@ -1,1 +1,0 @@
-So we fasted and implored our God for this, and he listened to our entreaty.

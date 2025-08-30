@@ -1,1 +1,0 @@
-For from his fullness we have all received, grace upon grace.

@@ -1,1 +1,0 @@
-Azariah fathered Helez, and Helez fathered Eleasah.

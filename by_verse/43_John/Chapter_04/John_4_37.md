@@ -1,1 +1,0 @@
-For here the saying holds true, One sows and another reaps.

@@ -1,1 +1,0 @@
-Israel is swallowed up; already they are among the nations as a useless vessel.

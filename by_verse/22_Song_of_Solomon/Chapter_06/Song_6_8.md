@@ -1,1 +1,0 @@
-There are sixty queens and eighty concubines, and virgins without number.

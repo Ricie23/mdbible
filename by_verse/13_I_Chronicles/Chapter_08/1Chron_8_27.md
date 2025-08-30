@@ -1,1 +1,0 @@
-Jaareshiah, Elijah, and Zichri were the sons of Jeroham.

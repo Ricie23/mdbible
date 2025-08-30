@@ -1,1 +1,0 @@
-Then Abimelech went to Thebez and encamped against Thebez and captured it.

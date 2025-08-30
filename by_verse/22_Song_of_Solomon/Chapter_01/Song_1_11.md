@@ -1,1 +1,0 @@
-We will make for you ornaments of gold, studded with silver.

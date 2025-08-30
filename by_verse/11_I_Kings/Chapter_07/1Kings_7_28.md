@@ -1,1 +1,0 @@
-This was the construction of the stands : they had panels, and the panels were set in the frames,

@@ -1,1 +1,0 @@
-I have seen the fool taking root, but suddenly I cursed his dwelling.

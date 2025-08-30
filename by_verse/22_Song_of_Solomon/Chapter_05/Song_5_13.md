@@ -1,1 +1,0 @@
-His cheeks are like beds of spices, mounds of sweet-smelling herbs. His lips are lilies, dripping liquid myrrh.

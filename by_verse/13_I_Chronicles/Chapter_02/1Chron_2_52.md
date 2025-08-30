@@ -1,1 +1,0 @@
-Shobal the father of Kiriath-jearim had other sons : Haroeh, half of the Menuhoth.

@@ -1,1 +1,0 @@
-he has blocked my ways with blocks of stones; he has made my paths crooked.

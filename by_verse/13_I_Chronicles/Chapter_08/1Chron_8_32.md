@@ -1,1 +1,0 @@
-and Mikloth (he fathered Shimeah ). Now these also lived opposite their kinsmen in Jerusalem, with their kinsmen.

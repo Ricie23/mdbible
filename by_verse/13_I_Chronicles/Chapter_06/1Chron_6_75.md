@@ -1,1 +1,0 @@
-Hukok with its pasturelands, and Rehob with its pasturelands;

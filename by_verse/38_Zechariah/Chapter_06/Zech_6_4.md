@@ -1,1 +1,0 @@
-Then I answered and said to the angel who talked with me, What are these, my lord?

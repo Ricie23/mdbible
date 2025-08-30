@@ -1,1 +1,0 @@
-Abimelech ruled over Israel three years.

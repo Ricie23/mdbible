@@ -1,1 +1,0 @@
-These are the sons of Israel : Reuben, Simeon, Levi, Judah, Issachar, Zebulun,

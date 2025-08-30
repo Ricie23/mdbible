@@ -1,1 +1,0 @@
-The sons of Ladan : Jehiel the chief, and Zetham, and Joel, three.

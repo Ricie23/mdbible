@@ -1,1 +1,0 @@
-I am a rose of Sharon, a lily of the valleys.

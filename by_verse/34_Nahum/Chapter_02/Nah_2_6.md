@@ -1,1 +1,0 @@
-The river gates are opened; the palace melts away;

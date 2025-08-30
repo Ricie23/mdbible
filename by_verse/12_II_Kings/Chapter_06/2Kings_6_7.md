@@ -1,1 +1,0 @@
-And he said, Take it up. So he reached out his hand and took it.

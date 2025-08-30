@@ -1,1 +1,0 @@
-You have despised my holy things and profaned my Sabbaths.

@@ -1,1 +1,0 @@
-Elishama, Eliada, and Eliphelet, nine.

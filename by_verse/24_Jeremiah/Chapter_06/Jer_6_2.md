@@ -1,1 +1,0 @@
-The lovely and delicately bred I will destroy, the daughter of Zion.

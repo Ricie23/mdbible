@@ -1,1 +1,0 @@
-And David and all Israel went to Jerusalem, that is, Jebus, where the Jebusites were, the inhabitants of the land.

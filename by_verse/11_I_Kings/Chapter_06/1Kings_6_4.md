@@ -1,1 +1,0 @@
-And he made for the house windows with recessed frames.

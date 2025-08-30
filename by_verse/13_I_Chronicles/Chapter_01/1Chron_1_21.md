@@ -1,1 +1,0 @@
-Hadoram, Uzal, Diklah,

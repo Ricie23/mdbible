@@ -1,1 +1,0 @@
-Amminadab fathered Nahshon, Nahshon fathered Salmon,

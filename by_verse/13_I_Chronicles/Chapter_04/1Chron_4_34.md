@@ -1,1 +1,0 @@
-Meshobab, Jamlech, Joshah the son of Amaziah,

@@ -1,1 +1,0 @@
-And now, O priests, this command is for you.

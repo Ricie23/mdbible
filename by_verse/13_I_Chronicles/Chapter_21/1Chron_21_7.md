@@ -1,1 +1,0 @@
-But God was displeased with this thing, and he struck Israel.

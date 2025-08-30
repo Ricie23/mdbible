@@ -1,1 +1,0 @@
-in the twilight, in the evening, at the time of night and darkness.

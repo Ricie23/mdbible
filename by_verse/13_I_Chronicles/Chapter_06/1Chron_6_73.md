@@ -1,1 +1,0 @@
-Ramoth with its pasturelands, and Anem with its pasturelands;

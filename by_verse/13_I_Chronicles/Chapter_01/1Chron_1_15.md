@@ -1,1 +1,0 @@
-the Hivites, the Arkites, the Sinites,

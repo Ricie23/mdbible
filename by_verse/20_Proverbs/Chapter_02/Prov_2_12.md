@@ -1,1 +1,0 @@
-delivering you from the way of evil, from men of perverted speech,

@@ -1,1 +1,0 @@
-There remained among the people of Israel seven tribes whose inheritance had not yet been apportioned.

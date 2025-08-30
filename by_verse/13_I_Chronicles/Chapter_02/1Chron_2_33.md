@@ -1,1 +1,0 @@
-The sons of Jonathan : Peleth and Zaza. These were the descendants of Jerahmeel.

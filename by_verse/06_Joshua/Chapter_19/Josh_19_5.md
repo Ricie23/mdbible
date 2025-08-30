@@ -1,1 +1,0 @@
-Ziklag, Beth-marcaboth, Hazar-susah,

@@ -1,1 +1,0 @@
-When you are encamped against your enemies, then you shall keep yourself from every evil thing.

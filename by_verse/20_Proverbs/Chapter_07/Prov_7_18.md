@@ -1,1 +1,0 @@
-Come, let us take our fill of love till morning; let us delight ourselves with love.

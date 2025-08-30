@@ -1,1 +1,0 @@
-Micah his son, Reaiah his son, Baal his son,

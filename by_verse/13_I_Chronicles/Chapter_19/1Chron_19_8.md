@@ -1,1 +1,0 @@
-When David heard of it, he sent Joab and all the army of the mighty men.

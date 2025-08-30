@@ -1,1 +1,0 @@
-bind them on your fingers; write them on the tablet of your heart.

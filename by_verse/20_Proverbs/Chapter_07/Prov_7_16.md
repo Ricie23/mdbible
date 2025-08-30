@@ -1,1 +1,0 @@
-I have spread my couch with coverings, colored linens from Egyptian linen;

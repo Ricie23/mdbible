@@ -1,1 +1,0 @@
-And God gave Solomon wisdom and understanding beyond measure, and breadth of mind like the sand on the seashore,

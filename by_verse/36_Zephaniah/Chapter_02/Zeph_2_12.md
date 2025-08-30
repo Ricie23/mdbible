@@ -1,1 +1,0 @@
-You also, O Cushites, shall be slain by my sword.

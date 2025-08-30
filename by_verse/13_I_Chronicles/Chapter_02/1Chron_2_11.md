@@ -1,1 +1,0 @@
-Nahshon fathered Salmon, Salmon fathered Boaz,

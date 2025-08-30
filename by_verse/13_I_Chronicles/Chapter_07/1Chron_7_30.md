@@ -1,1 +1,0 @@
-The sons of Asher : Imnah, Ishvah, Ishvi, Beriah, and their sister Serah.

@@ -1,1 +1,0 @@
-A fool takes no pleasure in understanding, but only in expressing his opinion.

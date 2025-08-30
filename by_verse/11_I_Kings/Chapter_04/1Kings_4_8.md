@@ -1,1 +1,0 @@
-These were their names : Ben-hur, in the hill country of Ephraim;

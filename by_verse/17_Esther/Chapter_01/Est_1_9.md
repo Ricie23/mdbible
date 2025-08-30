@@ -1,1 +1,0 @@
-Queen Vashti also gave a feast for the women in the palace that belonged to King Ahasuerus.

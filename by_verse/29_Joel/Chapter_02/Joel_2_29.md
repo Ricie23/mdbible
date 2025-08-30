@@ -1,1 +1,0 @@
-Even on the male and female servants in those days I will pour out my Spirit.

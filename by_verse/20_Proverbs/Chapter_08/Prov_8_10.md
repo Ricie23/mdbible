@@ -1,1 +1,0 @@
-Take my instruction instead of silver, and knowledge rather than choice gold,

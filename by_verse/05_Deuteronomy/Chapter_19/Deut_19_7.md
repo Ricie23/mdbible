@@ -1,1 +1,0 @@
-Therefore I command you, You shall set apart three cities.

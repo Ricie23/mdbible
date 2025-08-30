@@ -1,1 +1,0 @@
-Behold, you trust in deceptive words to no avail.

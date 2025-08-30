@@ -1,1 +1,0 @@
-Wrath is cruel, anger is overwhelming, but who can stand before jealousy?

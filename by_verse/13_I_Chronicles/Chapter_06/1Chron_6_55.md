@@ -1,1 +1,0 @@
-to them they gave Hebron in the land of Judah and its surrounding pasturelands,

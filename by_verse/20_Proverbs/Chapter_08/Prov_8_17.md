@@ -1,1 +1,0 @@
-I love those who love me, and those who seek me diligently find me.

@@ -1,1 +1,0 @@
-And he set the sea at the southeast corner of the house.

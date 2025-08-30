@@ -1,1 +1,0 @@
-So you remained at Kadesh many days, the days that you remained there.

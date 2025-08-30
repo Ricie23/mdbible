@@ -1,1 +1,0 @@
-Then Esther answered, My wish and my request is:

@@ -1,1 +1,0 @@
-He was a descendant of Perez and was chief of all the commanders. He served for the first month.

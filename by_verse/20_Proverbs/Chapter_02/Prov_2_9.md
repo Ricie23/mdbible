@@ -1,1 +1,0 @@
-Then you will understand righteousness and justice and equity, every good path;

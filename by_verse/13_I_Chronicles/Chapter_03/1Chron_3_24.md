@@ -1,1 +1,0 @@
-The sons of Elioenai : Hodaviah, Eliashib, Pelaiah, Akkub, Johanan, Delaiah, and Anani, seven.

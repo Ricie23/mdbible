@@ -1,1 +1,0 @@
-And Solomon went to Hamath-zobah and took it.

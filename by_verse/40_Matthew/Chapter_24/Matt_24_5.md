@@ -1,1 +1,0 @@
-For many will come in my name, saying, I am the Christ, and they will lead many astray.

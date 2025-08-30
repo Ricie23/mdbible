@@ -1,1 +1,0 @@
-son of Zerahiah, son of Uzzi, son of Bukki,

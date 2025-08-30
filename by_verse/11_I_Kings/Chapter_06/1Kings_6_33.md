@@ -1,1 +1,0 @@
-So also he made for the entrance to the nave doorposts of olivewood, in the form of a square,

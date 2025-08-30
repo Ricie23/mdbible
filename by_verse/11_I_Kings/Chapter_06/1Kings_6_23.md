@@ -1,1 +1,0 @@
-In the inner sanctuary he made two cherubim of olivewood, each ten cubits high.

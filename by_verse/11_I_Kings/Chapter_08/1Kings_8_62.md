@@ -1,1 +1,0 @@
-Then the king, and all Israel with him, offered sacrifice before the Lord.

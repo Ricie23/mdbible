@@ -1,1 +1,0 @@
-but in the end she is bitter as wormwood, sharp as a two-edged sword.

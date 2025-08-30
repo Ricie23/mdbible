@@ -1,1 +1,0 @@
-Do not desire his delicacies, for they are deceptive food.

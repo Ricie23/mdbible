@@ -1,1 +1,0 @@
-Without having any chief, officer, or ruler,

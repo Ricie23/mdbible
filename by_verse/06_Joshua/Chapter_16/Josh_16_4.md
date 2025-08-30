@@ -1,1 +1,0 @@
-The people of Joseph, Manasseh and Ephraim, received their inheritance.

@@ -1,1 +1,0 @@
-the sons of Asnah, the sons of Meunim, the sons of Nephisim,

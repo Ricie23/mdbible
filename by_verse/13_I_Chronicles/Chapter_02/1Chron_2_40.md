@@ -1,1 +1,0 @@
-Eleasah fathered Sismai, and Sismai fathered Shallum.

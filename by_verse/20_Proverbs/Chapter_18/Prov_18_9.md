@@ -1,1 +1,0 @@
-Whoever is slack in his work is a brother to him who destroys.

@@ -1,1 +1,0 @@
-Zabad fathered Ephlal, and Ephlal fathered Obed.

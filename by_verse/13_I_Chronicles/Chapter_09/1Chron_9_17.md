@@ -1,1 +1,0 @@
-The gatekeepers were Shallum, Akkub, Talmon, Ahiman, and their kinsmen ( Shallum was the chief );

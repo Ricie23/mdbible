@@ -1,1 +1,0 @@
-The sons of Midian : Ephah, Epher, Hanoch, Abida, and Eldaah. All these were the descendants of Keturah.

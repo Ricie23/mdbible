@@ -1,1 +1,0 @@
-Moza fathered Binea, and Rephaiah was his son, Eleasah his son, Azel his son.

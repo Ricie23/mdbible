@@ -1,1 +1,0 @@
-none who go to her come back, nor do they regain the paths of life.

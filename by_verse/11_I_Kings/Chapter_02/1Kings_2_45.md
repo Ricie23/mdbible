@@ -1,1 +1,0 @@
-But King Solomon shall be blessed, and the throne of David shall be established before the Lord forever.

@@ -1,1 +1,0 @@
-Meraioth fathered Amariah, Amariah fathered Ahitub,

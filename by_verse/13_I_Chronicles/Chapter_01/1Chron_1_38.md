@@ -1,1 +1,0 @@
-The sons of Seir : Lotan, Shobal, Zibeon, Anah, Dishon, Ezer, and Dishan.

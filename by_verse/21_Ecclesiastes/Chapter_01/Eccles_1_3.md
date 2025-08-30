@@ -1,1 +1,0 @@
-What does man gain by all the toil at which he toils under the sun?

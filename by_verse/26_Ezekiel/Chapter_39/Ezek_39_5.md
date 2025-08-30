@@ -1,1 +1,0 @@
-You shall fall in the open field, for I have spoken, declares the Lord God.

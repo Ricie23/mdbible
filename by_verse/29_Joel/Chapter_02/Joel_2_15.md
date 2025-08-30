@@ -1,1 +1,0 @@
-Blow the trumpet in Zion; consecrate a fast; call a solemn assembly;

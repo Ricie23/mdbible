@@ -1,1 +1,0 @@
-(the Sidonians call Hermon Sirion, while the Amorites call it Senir ),

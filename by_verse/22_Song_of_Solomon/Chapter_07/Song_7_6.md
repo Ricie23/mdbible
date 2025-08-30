@@ -1,1 +1,0 @@
-How beautiful and pleasant you are, O loved one, with all your delights!

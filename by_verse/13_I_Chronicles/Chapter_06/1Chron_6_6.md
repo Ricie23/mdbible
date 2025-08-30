@@ -1,1 +1,0 @@
-Uzzi fathered Zerahiah, Zerahiah fathered Meraioth,

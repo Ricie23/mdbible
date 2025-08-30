@@ -1,1 +1,0 @@
-son of Ethan, son of Zimmah, son of Shimei,

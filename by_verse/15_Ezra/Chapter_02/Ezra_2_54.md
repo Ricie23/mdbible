@@ -1,1 +1,0 @@
-the sons of Neziah, and the sons of Hatipha.

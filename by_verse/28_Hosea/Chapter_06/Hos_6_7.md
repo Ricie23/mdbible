@@ -1,1 +1,0 @@
-But like Adam they transgressed the covenant; there they dealt faithlessly with me.

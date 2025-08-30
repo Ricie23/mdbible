@@ -1,1 +1,0 @@
-Of the Levites : Shemaiah the son of Hasshub, son of Azrikam, son of Hashabiah, of the sons of Merari;

@@ -1,1 +1,0 @@
-Michael, Ishpah, and Joha were sons of Beriah.

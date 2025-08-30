@@ -1,1 +1,0 @@
-Sustain me with raisins; refresh me with apples, for I am sick with love.

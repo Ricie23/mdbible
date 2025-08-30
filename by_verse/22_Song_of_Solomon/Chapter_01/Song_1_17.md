@@ -1,1 +1,0 @@
-the beams of our house are cedar; our rafters are pine.

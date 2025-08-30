@@ -1,1 +1,0 @@
-Does not wisdom call? Does not understanding raise her voice?

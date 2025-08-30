@@ -1,1 +1,0 @@
-These also are proverbs of Solomon which the men of Hezekiah king of Judah copied.

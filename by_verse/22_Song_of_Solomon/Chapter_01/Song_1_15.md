@@ -1,1 +1,0 @@
-Behold, you are beautiful, my love; behold, you are beautiful; your eyes are doves.

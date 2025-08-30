@@ -1,1 +1,0 @@
-Hazar-shual, Balah, Ezem,

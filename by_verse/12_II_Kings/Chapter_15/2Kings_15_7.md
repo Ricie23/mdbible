@@ -1,1 +1,0 @@
-And Azariah slept with his fathers, and they buried him with his fathers in the city of David, and Jotham his son reigned in his place.

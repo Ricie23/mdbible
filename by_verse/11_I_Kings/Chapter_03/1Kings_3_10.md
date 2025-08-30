@@ -1,1 +1,0 @@
-It pleased the Lord that Solomon had asked this.

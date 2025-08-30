@@ -1,1 +1,0 @@
-They feed on the sin of my people; they are greedy for their iniquity.

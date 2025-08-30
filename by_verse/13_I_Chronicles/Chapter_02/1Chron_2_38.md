@@ -1,1 +1,0 @@
-Obed fathered Jehu, and Jehu fathered Azariah.

@@ -1,1 +1,0 @@
-So Moses continued to speak these words to all Israel.

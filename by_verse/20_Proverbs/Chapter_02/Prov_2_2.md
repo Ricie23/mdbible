@@ -1,1 +1,0 @@
-making your ear attentive to wisdom and inclining your heart to understanding;

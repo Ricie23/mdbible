@@ -1,1 +1,0 @@
-Stolen water is sweet, and bread eaten in secret is pleasant.

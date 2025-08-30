@@ -1,1 +1,0 @@
-The sons of Ezer : Bilhan, Zaavan, and Akan. The sons of Dishan : Uz and Aran.

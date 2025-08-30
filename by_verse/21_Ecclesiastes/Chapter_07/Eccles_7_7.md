@@ -1,1 +1,0 @@
-Surely oppression drives the wise into madness, and a bribe corrupts the heart.

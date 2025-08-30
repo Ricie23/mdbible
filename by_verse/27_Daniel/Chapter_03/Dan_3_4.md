@@ -1,1 +1,0 @@
-And the herald proclaimed aloud, You are commanded, O peoples, nations, and languages,

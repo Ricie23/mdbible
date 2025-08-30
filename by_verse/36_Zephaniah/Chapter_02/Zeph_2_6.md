@@ -1,1 +1,0 @@
-And you, O seacoast, shall be pastures, with meadows for shepherds and folds for flocks.

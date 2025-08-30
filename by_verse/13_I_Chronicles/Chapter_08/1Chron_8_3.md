@@ -1,1 +1,0 @@
-And Bela had sons : Addar, Gera, Abihud,

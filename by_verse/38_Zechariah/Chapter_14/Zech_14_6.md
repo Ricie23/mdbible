@@ -1,1 +1,0 @@
-On that day there shall be no light, cold, or frost.

@@ -1,1 +1,0 @@
-The sons of Nadab : Seled and Appaim; and Seled died childless.

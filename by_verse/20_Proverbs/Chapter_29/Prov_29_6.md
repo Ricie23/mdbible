@@ -1,1 +1,0 @@
-An evil man is ensnared in his transgression, but a righteous man sings and rejoices.

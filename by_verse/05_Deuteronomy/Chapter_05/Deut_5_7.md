@@ -1,1 +1,0 @@
-You shall have no other gods before me.

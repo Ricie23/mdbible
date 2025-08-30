@@ -1,1 +1,0 @@
-Consider the work of God : who can make straight what he has made crooked?

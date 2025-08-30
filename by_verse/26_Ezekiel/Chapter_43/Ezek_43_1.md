@@ -1,1 +1,0 @@
-Then he led me to the gate, the gate facing east.

@@ -1,1 +1,0 @@
-for apart from him who can eat or who can have enjoyment?

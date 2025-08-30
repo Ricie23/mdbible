@@ -1,1 +1,0 @@
-When the servants of King Hezekiah came to Isaiah,

@@ -1,1 +1,0 @@
-Eluzai, Jerimoth, Bealiah, Shemariah, Shephatiah the Haruphite;

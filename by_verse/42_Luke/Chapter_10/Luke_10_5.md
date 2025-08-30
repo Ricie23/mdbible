@@ -1,1 +1,0 @@
-Whatever house you enter, first say, Peace be to this house!

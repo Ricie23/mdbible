@@ -1,1 +1,0 @@
-Adjoining the territory of Naphtali, from the east side to the west, Manasseh, one portion.

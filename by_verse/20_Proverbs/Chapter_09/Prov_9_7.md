@@ -1,1 +1,0 @@
-Whoever corrects a scoffer gets himself abuse, and he who reproves a wicked man incurs injury.

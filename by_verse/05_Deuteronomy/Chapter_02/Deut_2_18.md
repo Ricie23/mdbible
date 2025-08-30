@@ -1,1 +1,0 @@
-Today you are to cross the border of Moab at Ar.

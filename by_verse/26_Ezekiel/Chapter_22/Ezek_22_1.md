@@ -1,1 +1,0 @@
-And the word of the Lord came to me, saying,

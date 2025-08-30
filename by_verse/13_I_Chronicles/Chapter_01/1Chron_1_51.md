@@ -1,1 +1,0 @@
-And Hadad died. The chiefs of Edom were: chiefs Timna, Alvah, Jetheth,

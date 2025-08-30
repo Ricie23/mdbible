@@ -1,1 +1,0 @@
-And I commanded you at that time all the things that you should do.

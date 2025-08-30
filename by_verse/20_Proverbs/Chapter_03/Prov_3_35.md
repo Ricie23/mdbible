@@ -1,1 +1,0 @@
-The wise will inherit honor, but fools get disgrace.

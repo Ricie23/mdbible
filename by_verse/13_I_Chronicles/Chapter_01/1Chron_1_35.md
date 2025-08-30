@@ -1,1 +1,0 @@
-The sons of Esau : Eliphaz, Reuel, Jeush, Jalam, and Korah.

@@ -1,1 +1,0 @@
-The Lord our God made a covenant with us in Horeb.

@@ -1,1 +1,0 @@
-Be not overly righteous, and do not make yourself too wise. Why should you destroy yourself?

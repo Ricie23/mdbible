@@ -1,1 +1,0 @@
-Your cheeks are like halves of a pomegranate behind your veil.

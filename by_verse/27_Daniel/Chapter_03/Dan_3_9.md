@@ -1,1 +1,0 @@
-They declared to King Nebuchadnezzar, O king, live forever!

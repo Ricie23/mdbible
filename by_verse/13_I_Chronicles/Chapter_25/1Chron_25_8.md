@@ -1,1 +1,0 @@
-And they cast lots for their duties, small and great, teacher and pupil alike.

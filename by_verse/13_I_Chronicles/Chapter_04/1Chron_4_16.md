@@ -1,1 +1,0 @@
-The sons of Jehallelel : Ziph, Ziphah, Tiria, and Asarel.

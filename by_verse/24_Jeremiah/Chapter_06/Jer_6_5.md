@@ -1,1 +1,0 @@
-Arise, and let us attack by night and destroy her palaces!

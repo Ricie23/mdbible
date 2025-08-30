@@ -1,1 +1,0 @@
-Then God said to Noah and to his sons with him,

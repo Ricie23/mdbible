@@ -1,1 +1,0 @@
-The lips of the wise spread knowledge; not so the hearts of fools.

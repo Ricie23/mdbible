@@ -1,1 +1,0 @@
-There were born to him seven sons and three daughters.

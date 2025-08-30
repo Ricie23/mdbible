@@ -1,1 +1,0 @@
-Hear instruction and be wise, and do not neglect it.

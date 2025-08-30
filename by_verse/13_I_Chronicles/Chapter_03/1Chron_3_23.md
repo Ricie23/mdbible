@@ -1,1 +1,0 @@
-The sons of Neariah : Elioenai, Hizkiah, and Azrikam, three.

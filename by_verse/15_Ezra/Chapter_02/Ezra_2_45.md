@@ -1,1 +1,0 @@
-the sons of Lebanah, the sons of Hagabah, the sons of Akkub,

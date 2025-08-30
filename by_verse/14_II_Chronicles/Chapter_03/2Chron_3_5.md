@@ -1,1 +1,0 @@
-The nave he lined with cypress and covered it with fine gold and made palms and chains on it.

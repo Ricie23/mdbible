@@ -1,1 +1,0 @@
-Shimea his son, Haggiah his son, and Asaiah his son.

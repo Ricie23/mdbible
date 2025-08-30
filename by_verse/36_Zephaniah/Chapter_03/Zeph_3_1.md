@@ -1,1 +1,0 @@
-Woe to her who is rebellious and defiled, the oppressing city!

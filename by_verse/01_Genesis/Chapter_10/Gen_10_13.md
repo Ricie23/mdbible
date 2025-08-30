@@ -1,1 +1,0 @@
-Egypt fathered Ludim, Anamim, Lehabim, Naphtuhim,

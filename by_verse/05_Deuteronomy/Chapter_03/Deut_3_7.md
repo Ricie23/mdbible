@@ -1,1 +1,0 @@
-But all the livestock and the spoil of the cities we took as our plunder.

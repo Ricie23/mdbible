@@ -1,1 +1,0 @@
-And his sister Hammolecheth bore Ishhod, Abiezer and Mahlah.

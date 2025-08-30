@@ -1,1 +1,0 @@
-Ahinadab the son of Iddo, in Mahanaim;

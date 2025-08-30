@@ -1,1 +1,0 @@
-His arms are rods of gold, set with jewels. His body is polished ivory, bedecked with sapphires.

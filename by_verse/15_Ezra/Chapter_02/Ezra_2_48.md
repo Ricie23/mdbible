@@ -1,1 +1,0 @@
-the sons of Rezin, the sons of Nekoda, the sons of Gazzam,

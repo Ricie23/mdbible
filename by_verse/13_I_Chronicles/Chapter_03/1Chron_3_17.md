@@ -1,1 +1,0 @@
-and the sons of Jeconiah, the captive : Shealtiel his son,

@@ -1,1 +1,0 @@
-Scoffers set a city aflame, but the wise turn away wrath.

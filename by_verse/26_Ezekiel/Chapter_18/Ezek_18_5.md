@@ -1,1 +1,0 @@
-If a man is righteous and does what is just and right —

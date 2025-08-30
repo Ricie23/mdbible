@@ -1,1 +1,0 @@
-Then I said to you, Do not be in dread or afraid of them.

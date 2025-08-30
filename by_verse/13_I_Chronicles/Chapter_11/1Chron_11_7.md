@@ -1,1 +1,0 @@
-And David lived in the stronghold; therefore it was called the city of David.

@@ -1,1 +1,0 @@
-Wisdom cries aloud in the street, in the markets she raises her voice;

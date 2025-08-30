@@ -1,1 +1,0 @@
-the Arvadites, the Zemarites, and the Hamathites.

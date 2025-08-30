@@ -1,1 +1,0 @@
-Ashan with its pasturelands, and Beth-shemesh with its pasturelands;

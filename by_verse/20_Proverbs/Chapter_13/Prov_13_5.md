@@ -1,1 +1,0 @@
-The righteous hates falsehood, but the wicked brings shame and disgrace.

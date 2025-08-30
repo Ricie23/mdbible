@@ -1,1 +1,0 @@
-And Meshelemiah had sons and brothers, able men, eighteen.

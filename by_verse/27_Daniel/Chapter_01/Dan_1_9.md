@@ -1,1 +1,0 @@
-And God gave Daniel favor and compassion in the sight of the chief of the eunuchs,

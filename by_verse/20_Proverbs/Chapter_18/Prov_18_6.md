@@ -1,1 +1,0 @@
-A fool’s lips walk into a fight, and his mouth invites a beating.

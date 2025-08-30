@@ -1,1 +1,0 @@
-Solomon sits on the royal throne.

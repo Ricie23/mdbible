@@ -1,1 +1,0 @@
-Lament like a virgin wearing sackcloth for the bridegroom of her youth.

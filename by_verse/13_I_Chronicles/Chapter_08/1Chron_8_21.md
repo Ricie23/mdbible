@@ -1,1 +1,0 @@
-Adaiah, Beraiah, and Shimrath were the sons of Shimei.

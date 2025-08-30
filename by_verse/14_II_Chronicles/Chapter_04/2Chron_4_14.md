@@ -1,1 +1,0 @@
-He made the stands also, and the basins on the stands,

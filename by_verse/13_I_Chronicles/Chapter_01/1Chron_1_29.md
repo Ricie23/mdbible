@@ -1,1 +1,0 @@
-These are their genealogies : the firstborn of Ishmael, Nebaioth, and Kedar, Adbeel, Mibsam,

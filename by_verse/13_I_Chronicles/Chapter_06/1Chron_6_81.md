@@ -1,1 +1,0 @@
-Heshbon with its pasturelands, and Jazer with its pasturelands.

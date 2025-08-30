@@ -1,1 +1,0 @@
-Our fathers sinned, and are no more; and we bear their iniquities.

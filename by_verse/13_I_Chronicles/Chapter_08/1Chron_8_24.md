@@ -1,1 +1,0 @@
-Hananiah, Elam, Anthothijah,

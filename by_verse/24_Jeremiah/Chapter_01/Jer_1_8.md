@@ -1,1 +1,0 @@
-Do not be afraid of them, for I am with you to deliver you, declares the Lord.

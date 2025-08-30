@@ -1,1 +1,0 @@
-The son of Shammai : Maon; and Maon fathered Beth-zur.

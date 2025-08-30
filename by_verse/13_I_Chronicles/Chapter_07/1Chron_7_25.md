@@ -1,1 +1,0 @@
-Rephah was his son, Resheph his son, Telah his son, Tahan his son,

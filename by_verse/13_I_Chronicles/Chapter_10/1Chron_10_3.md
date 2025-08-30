@@ -1,1 +1,0 @@
-The battle pressed hard against Saul, and the archers found him, and he was wounded by the archers.

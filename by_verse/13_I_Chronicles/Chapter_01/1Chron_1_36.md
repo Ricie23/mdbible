@@ -1,1 +1,0 @@
-The sons of Eliphaz : Teman, Omar, Zepho, Gatam, Kenaz, and of Timna, Amalek.

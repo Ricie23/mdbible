@@ -1,1 +1,0 @@
-The oracle that Habakkuk the prophet saw.

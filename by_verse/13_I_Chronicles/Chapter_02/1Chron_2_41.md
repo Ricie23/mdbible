@@ -1,1 +1,0 @@
-Shallum fathered Jekamiah, and Jekamiah fathered Elishama.

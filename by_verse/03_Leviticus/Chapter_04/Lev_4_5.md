@@ -1,1 +1,0 @@
-And the anointed priest shall take some of the blood of the bull and bring it into the tent of meeting,

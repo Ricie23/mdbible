@@ -1,1 +1,0 @@
-but he did not invite Nathan the prophet or Benaiah or the mighty men or Solomon his brother.

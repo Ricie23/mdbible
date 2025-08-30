@@ -1,1 +1,0 @@
-I the Preacher have been king over Israel in Jerusalem.

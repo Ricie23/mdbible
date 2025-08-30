@@ -1,1 +1,0 @@
-Now you, son of man, raise a lamentation over Tyre,

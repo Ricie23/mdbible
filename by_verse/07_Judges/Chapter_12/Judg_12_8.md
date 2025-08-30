@@ -1,1 +1,0 @@
-After him Ibzan of Bethlehem judged Israel.

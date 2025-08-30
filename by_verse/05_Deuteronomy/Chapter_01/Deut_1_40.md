@@ -1,1 +1,0 @@
-But as for you, turn, and journey into the wilderness in the direction of the Red Sea.

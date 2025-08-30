@@ -1,1 +1,0 @@
-We must pay for the water we drink; the wood we get must be bought.

@@ -1,1 +1,0 @@
-and Parmashta and Arisai and Aridai and Vaizatha,

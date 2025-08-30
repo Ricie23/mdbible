@@ -1,1 +1,0 @@
-O simple ones, learn prudence; O fools, learn sense.

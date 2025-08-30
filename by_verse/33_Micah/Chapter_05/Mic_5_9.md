@@ -1,1 +1,0 @@
-Your hand shall be lifted up over your adversaries, and all your enemies shall be cut off.

@@ -1,1 +1,0 @@
-I made great works. I built houses and planted vineyards for myself.

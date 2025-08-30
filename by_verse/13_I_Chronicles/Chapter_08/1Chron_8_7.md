@@ -1,1 +1,0 @@
-Naaman, Ahijah, and Gera, that is, Heglam, who fathered Uzza and Ahihud.

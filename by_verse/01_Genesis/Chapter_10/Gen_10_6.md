@@ -1,1 +1,0 @@
-The sons of Ham : Cush, Egypt, Put, and Canaan.

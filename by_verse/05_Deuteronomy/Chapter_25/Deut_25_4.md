@@ -1,1 +1,0 @@
-You shall not muzzle an ox when it is treading out the grain.

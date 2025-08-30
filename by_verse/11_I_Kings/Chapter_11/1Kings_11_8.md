@@ -1,1 +1,0 @@
-And so he did for all his foreign wives, who made offerings and sacrificed to their gods.

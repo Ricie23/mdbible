@@ -1,1 +1,0 @@
-If one turns away his ear from hearing the law, even his prayer is an abomination.

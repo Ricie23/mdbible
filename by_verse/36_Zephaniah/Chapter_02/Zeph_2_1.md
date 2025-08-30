@@ -1,1 +1,0 @@
-Gather together, yes, gather, O shameless nation,

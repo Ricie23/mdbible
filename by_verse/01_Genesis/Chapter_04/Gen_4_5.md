@@ -1,1 +1,0 @@
-but for Cain and his offering he had no regard. So Cain was very angry, and his face fell.

@@ -1,1 +1,0 @@
-Come, my beloved, let us go out into the fields and lodge in the villages;

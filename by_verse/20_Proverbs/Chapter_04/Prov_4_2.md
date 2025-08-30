@@ -1,1 +1,0 @@
-for I give you good precepts; do not forsake my teaching.

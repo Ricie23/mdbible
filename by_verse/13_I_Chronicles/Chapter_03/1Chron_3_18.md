@@ -1,1 +1,0 @@
-Malchiram, Pedaiah, Shenazzar, Jekamiah, Hoshama and Nedabiah;

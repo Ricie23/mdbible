@@ -1,1 +1,0 @@
-would have none of my counsel and despised all my reproof,

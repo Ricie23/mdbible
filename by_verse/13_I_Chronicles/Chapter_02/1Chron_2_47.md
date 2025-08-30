@@ -1,1 +1,0 @@
-The sons of Jahdai : Regem, Jotham, Geshan, Pelet, Ephah, and Shaaph.

@@ -1,1 +1,0 @@
-The sons of Hebron : Korah, Tappuah, Rekem and Shema.

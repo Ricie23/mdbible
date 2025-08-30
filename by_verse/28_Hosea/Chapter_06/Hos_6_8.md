@@ -1,1 +1,0 @@
-Gilead is a city of evildoers, tracked with blood.

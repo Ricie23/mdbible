@@ -1,1 +1,0 @@
-Obed fathered Jesse, and Jesse fathered David.

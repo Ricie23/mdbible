@@ -1,1 +1,0 @@
-And he presented the tribute to Eglon king of Moab. Now Eglon was a very fat man.

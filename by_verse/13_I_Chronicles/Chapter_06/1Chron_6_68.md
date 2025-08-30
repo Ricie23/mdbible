@@ -1,1 +1,0 @@
-Jokmeam with its pasturelands, Beth-horon with its pasturelands,

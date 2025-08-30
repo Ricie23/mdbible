@@ -1,1 +1,0 @@
-Whoever walks in integrity walks securely, but he who makes his ways crooked will be found out.

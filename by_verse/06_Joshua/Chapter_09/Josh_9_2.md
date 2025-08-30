@@ -1,1 +1,0 @@
-they gathered together as one to fight against Joshua and Israel.

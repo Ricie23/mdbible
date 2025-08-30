@@ -1,1 +1,0 @@
-Salmon fathered Boaz, Boaz fathered Obed,

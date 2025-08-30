@@ -1,1 +1,0 @@
-she prepares her bread in summer and gathers her food in harvest.

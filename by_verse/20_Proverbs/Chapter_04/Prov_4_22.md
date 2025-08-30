@@ -1,1 +1,0 @@
-For they are life to those who find them, and healing to all their flesh.

@@ -1,1 +1,0 @@
-from Issachar, Nethanel the son of Zuar;

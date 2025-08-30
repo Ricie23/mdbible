@@ -1,1 +1,0 @@
-The sons of Ulla : Arah, Hanniel, and Rizia.

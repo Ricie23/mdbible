@@ -1,1 +1,0 @@
-Then all the guests of Adonijah trembled and rose, and each went his own way.

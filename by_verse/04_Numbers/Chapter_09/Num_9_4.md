@@ -1,1 +1,0 @@
-So Moses told the people of Israel that they should keep the Passover.

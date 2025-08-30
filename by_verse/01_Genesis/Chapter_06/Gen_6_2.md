@@ -1,1 +1,0 @@
-the sons of God saw that the daughters of man were attractive. And they took as their wives any they chose.

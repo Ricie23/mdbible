@@ -1,1 +1,0 @@
-Argue your case with your neighbor himself, and do not reveal another’s secret,

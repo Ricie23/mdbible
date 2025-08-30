@@ -1,1 +1,0 @@
-I, wisdom, dwell with prudence, and I find knowledge and discretion.

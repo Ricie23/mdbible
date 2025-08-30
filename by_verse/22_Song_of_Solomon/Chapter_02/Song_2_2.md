@@ -1,1 +1,0 @@
-As a lily among brambles, so is my love among the young women.

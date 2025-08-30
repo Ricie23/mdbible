@@ -1,1 +1,0 @@
-King Solomon was king over all Israel,

@@ -1,1 +1,0 @@
-and out of the tribe of Issachar : Kedesh with its pasturelands, Daberath with its pasturelands,

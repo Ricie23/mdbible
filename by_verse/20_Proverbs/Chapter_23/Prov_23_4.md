@@ -1,1 +1,0 @@
-Do not toil to acquire wealth; be discerning enough to desist.

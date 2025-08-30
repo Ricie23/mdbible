@@ -1,1 +1,0 @@
-Ladan his son, Ammihud his son, Elishama his son,

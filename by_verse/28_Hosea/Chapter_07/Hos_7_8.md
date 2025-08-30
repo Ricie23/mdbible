@@ -1,1 +1,0 @@
-Ephraim mixes himself with the peoples; Ephraim is a cake not turned.

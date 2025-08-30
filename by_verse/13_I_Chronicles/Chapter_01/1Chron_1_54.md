@@ -1,1 +1,0 @@
-Magdiel, and Iram; these are the chiefs of Edom.

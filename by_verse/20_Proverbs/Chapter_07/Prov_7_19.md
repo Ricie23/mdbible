@@ -1,1 +1,0 @@
-For my husband is not at home; he has gone on a long journey;

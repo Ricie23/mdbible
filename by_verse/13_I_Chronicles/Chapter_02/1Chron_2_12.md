@@ -1,1 +1,0 @@
-Boaz fathered Obed, Obed fathered Jesse.

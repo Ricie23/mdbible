@@ -1,1 +1,0 @@
-To the Lord our God belong mercy and forgiveness, for we have rebelled against him

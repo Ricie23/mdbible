@@ -1,1 +1,0 @@
-Shallum fathered Hilkiah, Hilkiah fathered Azariah,

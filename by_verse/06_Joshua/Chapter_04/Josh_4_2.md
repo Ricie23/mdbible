@@ -1,1 +1,0 @@
-Take twelve men from the people, from each tribe a man,

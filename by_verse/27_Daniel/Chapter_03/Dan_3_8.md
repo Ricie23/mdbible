@@ -1,1 +1,0 @@
-Therefore at that time certain Chaldeans came forward and maliciously accused the Jews.

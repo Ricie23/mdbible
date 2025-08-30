@@ -1,1 +1,0 @@
-Then Joram reined about and fled, saying to Ahaziah, Treachery, O Ahaziah!

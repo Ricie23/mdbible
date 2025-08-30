@@ -1,1 +1,0 @@
-So Hiram supplied Solomon with all the timber of cedar and cypress that he desired,

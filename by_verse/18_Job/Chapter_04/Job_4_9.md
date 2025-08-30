@@ -1,1 +1,0 @@
-By the breath of God they perish, and by the blast of his anger they are consumed.

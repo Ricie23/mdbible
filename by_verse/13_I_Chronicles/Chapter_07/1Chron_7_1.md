@@ -1,1 +1,0 @@
-The sons of Issachar : Tola, Puah, Jashub, and Shimron, four.

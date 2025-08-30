@@ -1,1 +1,0 @@
-Her wisest princesses answer, indeed, she answers herself,

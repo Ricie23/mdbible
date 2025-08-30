@@ -1,1 +1,0 @@
-And horses were imported for Solomon from Egypt and from all lands.

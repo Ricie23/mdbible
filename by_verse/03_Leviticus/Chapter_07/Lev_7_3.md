@@ -1,1 +1,0 @@
-And all its fat shall be offered, the fat tail, the fat that covers the entrails,

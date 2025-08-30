@@ -1,1 +1,0 @@
-We came to Jerusalem, and there we remained three days.

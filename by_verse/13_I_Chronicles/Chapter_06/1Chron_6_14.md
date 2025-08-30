@@ -1,1 +1,0 @@
-Azariah fathered Seraiah, Seraiah fathered Jehozadak;

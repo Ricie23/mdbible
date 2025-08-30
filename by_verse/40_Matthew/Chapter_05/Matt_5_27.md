@@ -1,1 +1,0 @@
-You have heard that it was said, You shall not commit adultery.

@@ -1,1 +1,0 @@
-Blessed shall be your basket and your kneading bowl.

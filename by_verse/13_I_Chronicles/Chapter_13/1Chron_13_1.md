@@ -1,1 +1,0 @@
-David consulted with the commanders of thousands and of hundreds, with every leader.

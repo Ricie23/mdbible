@@ -1,1 +1,0 @@
-when he made firm the skies above, when he established the fountains of the deep,

@@ -1,1 +1,0 @@
-, Eleazar fathered Phinehas, Phinehas fathered Abishua,

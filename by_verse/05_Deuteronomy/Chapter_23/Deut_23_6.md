@@ -1,1 +1,0 @@
-You shall not seek their peace or their prosperity all your days forever.

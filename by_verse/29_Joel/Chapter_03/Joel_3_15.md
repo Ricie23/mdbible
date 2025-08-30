@@ -1,1 +1,0 @@
-The sun and the moon are darkened, and the stars withdraw their shining.

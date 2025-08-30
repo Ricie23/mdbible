@@ -1,1 +1,0 @@
-So the men took some of their provisions, but did not ask counsel from the Lord.

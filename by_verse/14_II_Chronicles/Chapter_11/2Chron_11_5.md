@@ -1,1 +1,0 @@
-Rehoboam lived in Jerusalem, and he built cities for defense in Judah.

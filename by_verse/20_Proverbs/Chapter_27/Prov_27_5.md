@@ -1,1 +1,0 @@
-Better is open rebuke than hidden love.

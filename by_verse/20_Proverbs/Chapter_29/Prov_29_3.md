@@ -1,1 +1,0 @@
-He who loves wisdom makes his father glad, but a companion of prostitutes squanders his wealth.

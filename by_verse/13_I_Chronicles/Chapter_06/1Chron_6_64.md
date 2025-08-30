@@ -1,1 +1,0 @@
-So the people of Israel gave the Levites the cities with their pasturelands.

@@ -1,1 +1,0 @@
-The first chariot had red horses, the second black horses,

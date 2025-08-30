@@ -1,1 +1,0 @@
-Hur fathered Uri, and Uri fathered Bezalel.

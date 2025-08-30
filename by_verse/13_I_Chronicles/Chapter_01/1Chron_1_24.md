@@ -1,1 +1,0 @@
-Shem, Arpachshad, Shelah;

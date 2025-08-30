@@ -1,1 +1,0 @@
-son of Amzi, son of Bani, son of Shemer,

@@ -1,1 +1,0 @@
-There were window frames in three rows, and window opposite window in three tiers.

@@ -1,1 +1,0 @@
-The sons of Helah : Zereth, Izhar, and Ethnan.

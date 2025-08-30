@@ -1,1 +1,0 @@
-Benjamin fathered Bela his firstborn, Ashbel the second, Aharah the third,

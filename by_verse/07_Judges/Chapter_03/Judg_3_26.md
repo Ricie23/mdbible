@@ -1,1 +1,0 @@
-Ehud escaped while they delayed, and he passed beyond the idols and escaped to Seirah.

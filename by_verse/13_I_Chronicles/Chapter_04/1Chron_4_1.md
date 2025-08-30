@@ -1,1 +1,0 @@
-The sons of Judah : Perez, Hezron, Carmi, Hur, and Shobal.

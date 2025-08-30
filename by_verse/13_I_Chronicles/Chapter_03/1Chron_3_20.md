@@ -1,1 +1,0 @@
-and Hashubah, Ohel, Berechiah, Hasadiah, and Jushab-hesed, five.

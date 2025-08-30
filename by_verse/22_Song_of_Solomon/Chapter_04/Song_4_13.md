@@ -1,1 +1,0 @@
-Your shoots are an orchard of pomegranates with all choicest fruits, henna with nard,

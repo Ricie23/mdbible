@@ -1,1 +1,0 @@
-Wealth brings many new friends, but a poor man is deserted by his friend.

@@ -1,1 +1,0 @@
-At the end of every seven years you shall grant a release.

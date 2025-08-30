@@ -1,1 +1,0 @@
-After the death of Ahab, Moab rebelled against Israel.

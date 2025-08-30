@@ -1,1 +1,0 @@
-son of Izhar, son of Kohath, son of Levi, son of Israel;

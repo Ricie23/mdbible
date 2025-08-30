@@ -1,1 +1,0 @@
-the sons of Reuben, the firstborn of Israel : Hanoch, Pallu, Hezron, and Carmi.

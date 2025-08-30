@@ -1,1 +1,0 @@
-therefore calamity will come upon him suddenly; in a moment he will be broken beyond healing.

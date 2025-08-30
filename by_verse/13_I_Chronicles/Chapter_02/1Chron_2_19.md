@@ -1,1 +1,0 @@
-When Azubah died, Caleb married Ephrath, who bore him Hur.

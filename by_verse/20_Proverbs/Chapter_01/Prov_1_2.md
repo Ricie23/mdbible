@@ -1,1 +1,0 @@
-To know wisdom and instruction, to understand words of insight,

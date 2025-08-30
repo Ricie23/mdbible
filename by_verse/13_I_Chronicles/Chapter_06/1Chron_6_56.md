@@ -1,1 +1,0 @@
-but the fields of the city and its villages they gave to Caleb the son of Jephunneh.

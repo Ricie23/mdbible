@@ -1,1 +1,0 @@
-the ten stands, and the ten basins on the stands;

@@ -1,1 +1,0 @@
-The children of Amram : Aaron, Moses, and Miriam. The sons of Aaron : Nadab, Abihu, Eleazar, and Ithamar.

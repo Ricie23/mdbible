@@ -1,1 +1,0 @@
-The sons of Ram, the firstborn of Jerahmeel : Maaz, Jamin, and Eker.

@@ -1,1 +1,0 @@
-son of Ethni, son of Zerah, son of Adaiah,

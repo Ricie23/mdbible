@@ -1,1 +1,0 @@
-The fool folds his hands and eats his own flesh.

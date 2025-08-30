@@ -1,1 +1,0 @@
-Many will come in my name, saying, I am he! and they will lead many astray.

@@ -1,1 +1,0 @@
-and you say, How I hated discipline, and my heart despised reproof!

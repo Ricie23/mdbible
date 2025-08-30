@@ -1,1 +1,0 @@
-Because Syria, with Ephraim and the son of Remaliah, has devised evil against you, saying,

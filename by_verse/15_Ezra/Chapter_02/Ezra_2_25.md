@@ -1,1 +1,0 @@
-The sons of Kiriath-arim, Chephirah, and Beeroth, 743.

@@ -1,1 +1,0 @@
-Put away from you crooked speech, and put devious talk far from you.

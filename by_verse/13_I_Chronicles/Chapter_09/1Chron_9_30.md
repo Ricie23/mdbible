@@ -1,1 +1,0 @@
-Others, of the sons of the priests, prepared the mixing of the spices,

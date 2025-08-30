@@ -1,1 +1,0 @@
-that I may lay hold of the hearts of the house of Israel, who are all estranged from me through their idols.

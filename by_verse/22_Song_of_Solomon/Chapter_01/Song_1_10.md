@@ -1,1 +1,0 @@
-Your cheeks are lovely with ornaments, your neck with strings of jewels.

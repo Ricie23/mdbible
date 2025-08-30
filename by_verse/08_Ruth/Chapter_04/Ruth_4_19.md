@@ -1,1 +1,0 @@
-Hezron fathered Ram, Ram fathered Amminadab,

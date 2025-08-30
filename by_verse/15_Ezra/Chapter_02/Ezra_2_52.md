@@ -1,1 +1,0 @@
-the sons of Bazluth, the sons of Mehida, the sons of Harsha,

@@ -1,1 +1,0 @@
-The sons of Shemida were Ahian, Shechem, Likhi, and Aniam.

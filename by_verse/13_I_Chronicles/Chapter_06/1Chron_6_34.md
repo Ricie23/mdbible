@@ -1,1 +1,0 @@
-son of Elkanah, son of Jeroham, son of Eliel, son of Toah,

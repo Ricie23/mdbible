@@ -1,1 +1,0 @@
-Elkanah his son, Ebiasaph his son, Assir his son,

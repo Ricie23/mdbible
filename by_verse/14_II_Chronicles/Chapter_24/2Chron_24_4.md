@@ -1,1 +1,0 @@
-After this Joash decided to restore the house of the Lord.

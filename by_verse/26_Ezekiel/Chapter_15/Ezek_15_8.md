@@ -1,1 +1,0 @@
-And I will make the land desolate, because they have acted faithlessly, declares the Lord God.

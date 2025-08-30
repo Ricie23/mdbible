@@ -1,1 +1,0 @@
-The descendants of Jehoiakim : Jeconiah his son, Zedekiah his son;

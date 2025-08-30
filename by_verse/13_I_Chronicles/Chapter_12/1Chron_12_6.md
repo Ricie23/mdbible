@@ -1,1 +1,0 @@
-Elkanah, Isshiah, Azarel, Joezer, and Jashobeam, the Korahites;

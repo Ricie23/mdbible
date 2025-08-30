@@ -1,1 +1,0 @@
-granting an inheritance to those who love me, and filling their treasuries.

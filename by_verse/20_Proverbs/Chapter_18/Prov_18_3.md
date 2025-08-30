@@ -1,1 +1,0 @@
-When wickedness comes, contempt comes also, and with dishonor comes disgrace.

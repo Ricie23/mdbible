@@ -1,1 +1,0 @@
-The tongue of the wise commends knowledge, but the mouths of fools pour out folly.

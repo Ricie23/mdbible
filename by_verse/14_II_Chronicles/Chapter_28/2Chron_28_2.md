@@ -1,1 +1,0 @@
-but he walked in the ways of the kings of Israel. He even made metal images for the Baals,

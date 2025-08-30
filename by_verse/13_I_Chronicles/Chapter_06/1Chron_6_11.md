@@ -1,1 +1,0 @@
-Azariah fathered Amariah, Amariah fathered Ahitub,

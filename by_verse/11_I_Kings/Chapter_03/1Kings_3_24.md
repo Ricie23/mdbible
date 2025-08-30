@@ -1,1 +1,0 @@
-And the king said, Bring me a sword. So a sword was brought before the king.

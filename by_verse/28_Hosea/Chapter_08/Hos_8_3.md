@@ -1,1 +1,0 @@
-Israel has spurned the good; the enemy shall pursue him.

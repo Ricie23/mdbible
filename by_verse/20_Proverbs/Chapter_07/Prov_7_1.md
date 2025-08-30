@@ -1,1 +1,0 @@
-My son, keep my words and treasure up my commandments with you;

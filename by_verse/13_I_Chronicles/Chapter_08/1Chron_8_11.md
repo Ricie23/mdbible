@@ -1,1 +1,0 @@
-He also fathered sons by Hushim : Abitub and Elpaal.

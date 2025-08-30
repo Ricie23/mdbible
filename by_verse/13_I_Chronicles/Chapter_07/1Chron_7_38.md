@@ -1,1 +1,0 @@
-The sons of Jether : Jephunneh, Pispa, and Ara.

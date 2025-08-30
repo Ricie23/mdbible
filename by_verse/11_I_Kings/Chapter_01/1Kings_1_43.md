@@ -1,1 +1,0 @@
-Jonathan answered Adonijah, No, for our lord King David has made Solomon king,

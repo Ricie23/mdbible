@@ -1,1 +1,0 @@
-And the house of Joseph scouted out Bethel. ( Now the name of the city was formerly Luz .)

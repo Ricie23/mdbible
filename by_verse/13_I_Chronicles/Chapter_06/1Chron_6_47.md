@@ -1,1 +1,0 @@
-son of Mahli, son of Mushi, son of Merari, son of Levi.

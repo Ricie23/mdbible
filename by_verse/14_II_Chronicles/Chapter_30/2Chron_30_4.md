@@ -1,1 +1,0 @@
-and the plan seemed right to the king and all the assembly.

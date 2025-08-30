@@ -1,1 +1,0 @@
-from Judah, Nahshon the son of Amminadab;

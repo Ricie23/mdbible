@@ -1,1 +1,0 @@
-One day he came there, and he turned into the chamber and rested there.

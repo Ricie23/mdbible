@@ -1,1 +1,0 @@
-Zebadiah, Arad, Eder,

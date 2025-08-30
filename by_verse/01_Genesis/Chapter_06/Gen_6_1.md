@@ -1,1 +1,0 @@
-When man began to multiply on the face of the land and daughters were born to them,

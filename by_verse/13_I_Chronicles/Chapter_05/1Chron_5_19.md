@@ -1,1 +1,0 @@
-They waged war against the Hagrites, Jetur, Naphish, and Nodab.

@@ -1,1 +1,0 @@
-by his knowledge the deeps broke open, and the clouds drop down the dew.

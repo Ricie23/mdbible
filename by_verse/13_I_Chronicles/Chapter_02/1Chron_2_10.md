@@ -1,1 +1,0 @@
-Ram fathered Amminadab, and Amminadab fathered Nahshon, prince of the sons of Judah.

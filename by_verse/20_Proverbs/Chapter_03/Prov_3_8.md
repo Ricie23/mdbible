@@ -1,1 +1,0 @@
-It will be healing to your flesh and refreshment to your bones.

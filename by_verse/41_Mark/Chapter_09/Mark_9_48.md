@@ -1,1 +1,0 @@
-where their worm does not die and the fire is not quenched.

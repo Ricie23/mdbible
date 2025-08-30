@@ -1,1 +1,0 @@
-Hear this, you who trample on the needy and bring the poor of the land to an end,

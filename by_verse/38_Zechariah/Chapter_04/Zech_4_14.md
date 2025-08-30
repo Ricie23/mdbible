@@ -1,1 +1,0 @@
-Then he said, These are the two anointed ones who stand by the Lord of the whole earth.

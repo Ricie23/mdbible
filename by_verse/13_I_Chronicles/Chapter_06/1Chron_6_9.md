@@ -1,1 +1,0 @@
-Ahimaaz fathered Azariah, Azariah fathered Johanan,

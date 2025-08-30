@@ -1,1 +1,0 @@
-Moreover, it has not seen the sun or known anything, yet it finds rest rather than he.

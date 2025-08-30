@@ -1,1 +1,0 @@
-But the word of the Lord came to Shemaiah the man of God :

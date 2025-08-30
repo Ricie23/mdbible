@@ -1,1 +1,0 @@
-But Noah found favor in the eyes of the Lord.

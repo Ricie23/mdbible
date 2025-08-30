@@ -1,1 +1,0 @@
-When she had weaned No Mercy, she conceived and bore a son.

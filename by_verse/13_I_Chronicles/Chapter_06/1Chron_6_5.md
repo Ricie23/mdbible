@@ -1,1 +1,0 @@
-Abishua fathered Bukki, Bukki fathered Uzzi,

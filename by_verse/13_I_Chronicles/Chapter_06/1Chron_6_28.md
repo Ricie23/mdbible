@@ -1,1 +1,0 @@
-The sons of Samuel : Joel his firstborn, the second Abijah.

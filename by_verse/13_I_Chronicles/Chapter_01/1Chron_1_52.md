@@ -1,1 +1,0 @@
-Oholibamah, Elah, Pinon,

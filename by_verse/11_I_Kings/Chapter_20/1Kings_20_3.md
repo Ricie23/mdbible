@@ -1,1 +1,0 @@
-Your silver and your gold are mine; your best wives and children also are mine.

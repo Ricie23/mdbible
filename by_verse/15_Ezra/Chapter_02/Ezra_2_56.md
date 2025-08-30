@@ -1,1 +1,0 @@
-the sons of Jaalah, the sons of Darkon, the sons of Giddel,

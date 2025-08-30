@@ -1,1 +1,0 @@
-Ahitub fathered Zadok, Zadok fathered Shallum,

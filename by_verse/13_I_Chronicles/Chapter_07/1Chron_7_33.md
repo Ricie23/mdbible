@@ -1,1 +1,0 @@
-The sons of Japhlet : Pasach, Bimhal, and Ashvath. These are the sons of Japhlet.

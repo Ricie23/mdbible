@@ -1,1 +1,0 @@
-for it is written, He will command his angels concerning you, to guard you,

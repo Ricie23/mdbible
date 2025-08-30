@@ -1,1 +1,0 @@
-He built Bethlehem, Etam, Tekoa,

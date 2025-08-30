@@ -1,1 +1,0 @@
-Bezer, Hod, Shamma, Shilshah, Ithran, and Beera.

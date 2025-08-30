@@ -1,1 +1,0 @@
-In that night God appeared to Solomon, and said to him, Ask what I shall give you.

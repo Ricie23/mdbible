@@ -1,1 +1,0 @@
-And you, take up a lamentation for the princes of Israel,

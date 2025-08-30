@@ -1,1 +1,0 @@
-son of Tahath, son of Assir, son of Ebiasaph, son of Korah,

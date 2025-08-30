@@ -1,1 +1,0 @@
-the flowers, the lamps, and the tongs, of purest gold;

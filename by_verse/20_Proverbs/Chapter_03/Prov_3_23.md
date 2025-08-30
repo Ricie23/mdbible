@@ -1,1 +1,0 @@
-Then you will walk on your way securely, and your foot will not stumble.

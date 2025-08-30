@@ -1,1 +1,0 @@
-And above were costly stones, cut according to measurement, and cedar.

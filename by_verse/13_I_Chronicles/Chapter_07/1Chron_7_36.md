@@ -1,1 +1,0 @@
-The sons of Zophah : Suah, Harnepher, Shual, Beri, Imrah.

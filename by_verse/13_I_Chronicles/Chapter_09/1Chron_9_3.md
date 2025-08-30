@@ -1,1 +1,0 @@
-And some of the people of Judah, Benjamin, Ephraim, and Manasseh lived in Jerusalem :

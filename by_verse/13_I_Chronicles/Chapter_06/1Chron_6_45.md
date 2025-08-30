@@ -1,1 +1,0 @@
-son of Hashabiah, son of Amaziah, son of Hilkiah,

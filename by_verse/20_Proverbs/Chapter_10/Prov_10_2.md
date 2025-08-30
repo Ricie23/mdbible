@@ -1,1 +1,0 @@
-Treasures gained by wickedness do not profit, but righteousness delivers from death.

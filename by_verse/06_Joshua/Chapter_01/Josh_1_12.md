@@ -1,1 +1,0 @@
-And to the Reubenites, the Gadites, and the half-tribe of Manasseh Joshua said,

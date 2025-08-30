@@ -1,1 +1,0 @@
-so Solomon rebuilt Gezer ) and Lower Beth-horon

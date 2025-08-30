@@ -1,1 +1,0 @@
-The sons of Javan : Elishah, Tarshish, Kittim, and Rodanim.

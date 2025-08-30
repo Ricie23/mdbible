@@ -1,1 +1,0 @@
-Bathsheba said, Very well; I will speak for you to the king.

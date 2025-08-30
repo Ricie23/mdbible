@@ -1,1 +1,0 @@
-And they had for their inheritance Beersheba, Sheba, Moladah,

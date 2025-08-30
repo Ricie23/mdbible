@@ -1,1 +1,0 @@
-Koz fathered Anub, Zobebah, and the clans of Aharhel, the son of Harum.

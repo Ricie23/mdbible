@@ -1,1 +1,0 @@
-He began to build in the second month of the fourth year of his reign.

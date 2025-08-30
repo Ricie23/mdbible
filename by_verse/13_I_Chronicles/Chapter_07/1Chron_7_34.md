@@ -1,1 +1,0 @@
-The sons of Shemer his brother : Rohgah, Jehubbah, and Aram.

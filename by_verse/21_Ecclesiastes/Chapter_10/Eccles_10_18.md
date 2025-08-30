@@ -1,1 +1,0 @@
-Through sloth the roof sinks in, and through indolence the house leaks.

@@ -1,1 +1,0 @@
-Attai fathered Nathan, and Nathan fathered Zabad.

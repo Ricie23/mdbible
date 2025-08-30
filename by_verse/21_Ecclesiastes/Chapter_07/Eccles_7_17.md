@@ -1,1 +1,0 @@
-Be not overly wicked, neither be a fool. Why should you die before your time?

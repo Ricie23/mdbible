@@ -1,1 +1,0 @@
-Elkanah his son, Zophai his son, Nahath his son,

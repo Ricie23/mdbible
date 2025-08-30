@@ -1,1 +1,0 @@
-and Baalath and Tamar in the wilderness, in the land of Judah,

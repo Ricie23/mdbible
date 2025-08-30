@@ -1,1 +1,0 @@
-Now there arose a great outcry of the people and of their wives against their Jewish brothers.

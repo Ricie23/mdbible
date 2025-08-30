@@ -1,1 +1,0 @@
-Do not marvel that I said to you, You must be born again.

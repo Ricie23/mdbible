@@ -1,1 +1,0 @@
-So we remained in the valley opposite Beth-peor.

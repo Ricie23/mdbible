@@ -1,1 +1,0 @@
-Zebadiah, Meshullam, Hizki, Heber,

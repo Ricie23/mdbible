@@ -1,1 +1,0 @@
-to give prudence to the simple, knowledge and discretion to the youth —

@@ -1,1 +1,0 @@
-Then two prostitutes came to the king and stood before him.

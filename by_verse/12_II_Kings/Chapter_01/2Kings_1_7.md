@@ -1,1 +1,0 @@
-He said to them, What kind of man was he who came to meet you and told you these things?

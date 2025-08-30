@@ -1,1 +1,0 @@
-your anointing oils are fragrant; your name is oil poured out; therefore virgins love you.

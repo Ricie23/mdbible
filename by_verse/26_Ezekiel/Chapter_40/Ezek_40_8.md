@@ -1,1 +1,0 @@
-Then he measured the vestibule of the gateway, on the inside, one reed.

@@ -1,1 +1,0 @@
-And she replied, All that you say I will do.

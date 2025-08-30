@@ -1,1 +1,0 @@
-Adjoining the territory of Ephraim, from the east side to the west, Reuben, one portion.

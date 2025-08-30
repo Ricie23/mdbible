@@ -1,1 +1,0 @@
-Ezer the chief, Obadiah second, Eliab third,

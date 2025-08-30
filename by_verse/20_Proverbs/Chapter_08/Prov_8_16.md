@@ -1,1 +1,0 @@
-by me princes rule, and nobles, all who govern justly.

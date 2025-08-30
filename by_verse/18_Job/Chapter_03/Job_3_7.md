@@ -1,1 +1,0 @@
-Behold, let that night be barren; let no joyful cry enter it.

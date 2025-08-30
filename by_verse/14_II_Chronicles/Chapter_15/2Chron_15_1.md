@@ -1,1 +1,0 @@
-The Spirit of God came upon Azariah the son of Oded,

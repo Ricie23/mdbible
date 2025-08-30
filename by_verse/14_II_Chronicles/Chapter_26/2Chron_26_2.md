@@ -1,1 +1,0 @@
-He built Eloth and restored it to Judah, after the king slept with his fathers.

@@ -1,1 +1,0 @@
-Adjoining the territory of Manasseh, from the east side to the west, Ephraim, one portion.

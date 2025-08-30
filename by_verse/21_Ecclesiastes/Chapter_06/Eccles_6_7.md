@@ -1,1 +1,0 @@
-All the toil of man is for his mouth, yet his appetite is not satisfied.

@@ -1,1 +1,0 @@
-Kedemoth with its pasturelands, and Mephaath with its pasturelands;

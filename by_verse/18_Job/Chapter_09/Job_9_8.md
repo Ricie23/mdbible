@@ -1,1 +1,0 @@
-who alone stretched out the heavens and trampled the waves of the sea;

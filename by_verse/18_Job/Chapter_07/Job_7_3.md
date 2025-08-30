@@ -1,1 +1,0 @@
-so I am allotted months of emptiness, and nights of misery are apportioned to me.

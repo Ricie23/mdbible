@@ -1,1 +1,0 @@
-Surely vexation kills the fool, and jealousy slays the simple.

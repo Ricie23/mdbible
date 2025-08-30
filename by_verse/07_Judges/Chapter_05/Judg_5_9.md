@@ -1,1 +1,0 @@
-My heart goes out to the commanders of Israel who offered themselves willingly among the people. Bless the Lord.

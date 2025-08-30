@@ -1,1 +1,0 @@
-Slaves rule over us; there is none to deliver us from their hand.
