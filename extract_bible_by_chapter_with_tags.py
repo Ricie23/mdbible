@@ -2,11 +2,41 @@ import json
 import re
 import os
 
-os.mkdir("by_chapter_with_tags")
+# Get directory name and check if it exists
+dir_name = input("Please enter Directory name: (e.g. 'KJV_by_chapter_with_tags')")
+if os.path.exists(dir_name):
+    print(f"Directory '{dir_name}' already exists!")
+    overwrite = input("Do you want to continue and potentially overwrite files? (y/n): ").lower()
+    if overwrite != 'y':
+        print("Operation cancelled.")
+        exit()
+else:
+    os.mkdir(dir_name)
 
-with open("json/ESV.json") as file:
+# Get available Bible versions from json folder
+json_files = [f for f in os.listdir("json") if f.endswith('.json') and f != 'abbrev_map.json']
+bible_versions = [f.replace('.json', '') for f in json_files]
+
+print("\nAvailable Bible versions:")
+for i, version in enumerate(bible_versions, 1):
+    print(f"{i}. {version}")
+
+# Get user selection
+while True:
+    try:
+        selection = int(input(f"\nSelect a Bible version (1-{len(bible_versions)}): "))
+        if 1 <= selection <= len(bible_versions):
+            bible_version = bible_versions[selection - 1]
+            print(f"Selected: {bible_version}")
+            break
+        else:
+            print(f"Please enter a number between 1 and {len(bible_versions)}")
+    except ValueError:
+        print("Please enter a valid number")
+
+with open(f"json/{bible_version}.json") as file:
     data = json.load(file)
-    books = data["books"]
+    books = data['books']
 
 with open("json/abbrev_map.json") as abbrev_file:
     abbrev = json.load(abbrev_file)
@@ -18,30 +48,30 @@ for entry in abbrev:
 
 book_index = 1
 for book_title in books:
+    print(f"Processing {book_title}...")
     abbrev = abbrev_map[book_title]
     formatted_book_title = str.replace(book_title, " ", "_")
     file_title = f"{book_index:02d}_{formatted_book_title}"
     book = books[f"{book_title}"]
     chapters = [chapter for chapter in book]
-    os.mkdir(f"by_chapter_with_tags/{file_title}")
+    book_dir = f"{dir_name}/{file_title}"
+    if not os.path.exists(book_dir):
+        os.mkdir(book_dir)
     fulltexts = []
 
     chap_index = 1
-    for chapter in chapters:
-        verses = [verse for verse in chapter]
-        indeces = [verses.index(verse) for verse in chapter]
-
+    for chapter_num in chapters:
+        print(f'Processing chapter: {chapter_num}')
+        chapter_content = book[chapter_num]  # Get the actual chapter content
         verses = []
+        
+        # Extract verses from the chapter
+        for verse_num in chapter_content:
+            verse_text = chapter_content[verse_num]
+            verses.append(verse_text)
 
-        for index in indeces:
-            chunks = [i for i in chapter[index]]
-            verse = " ".join([chunk[0]
-                              for chunk in chunks if not isinstance(chunk[0], list)])
-            verse = re.sub(r'\s([?.,;!"](?:\s|$))', r'\1', verse)
-            verses.append(verse)
-
-        with open(f"by_chapter_with_tags/{file_title}/Chapter_{chap_index:02d}.md", "w") as file:
-            file.write(f"tags: #ESV #{formatted_book_title} #{formatted_book_title}_{chap_index} #{abbrev} #{abbrev}_{chap_index}\n\n")
+        with open(f"{book_dir}/Chapter_{chap_index:02d}.md", "w") as file:
+            file.write(f"tags: #{bible_version} #{formatted_book_title} #{formatted_book_title}_{chap_index} #{abbrev} #{abbrev}_{chap_index}\n\n")
             file.write(f"# {book_title} Chapter {chap_index}\n\n")
             verse_index = 1
             for verse in verses:
